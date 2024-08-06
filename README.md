@@ -5,3 +5,6 @@ tenho 15 anos
 gosto de terror ☠️☠️
 sou jogador de tennis🎾🥎 
 amo jogar video game🎮🎮
+https://scratch.mit.edu/projects/1006866505  
+https://editor.p5js.org/jon369/full/VjXqYjU2q
+https://scratch.mit.edu/projects/1032148434
